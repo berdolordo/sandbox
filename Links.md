@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-10 14:49 IR
+- 🎬 [DİZİ_SEKTÖRÜ_BATIYOR_-_(Hasan_Can_ve_Kadıköy_Boğası_İçerir).mp4](https://github.com/berdolordo/sandbox/raw/main/dl/DI%CC%87ZI%CC%87_SEKTO%CC%88RU%CC%88_BATIYOR_-_%28Hasan_Can_ve_Kad%C4%B1k%C3%B6y_Bo%C4%9Fas%C4%B1_%C4%B0%C3%A7erir%29.mp4) `53.1MB`
+
+---
+
+
 ### 📅 2026-05-10 14:47 IR
 - 🎬 [HIRTLAR_VADİSİ_-_YERALTI_DİZİ_ELEŞTİRİSİ.mp4](https://github.com/berdolordo/sandbox/raw/main/dl/HIRTLAR_VAD%C4%B0S%C4%B0_-_YERALTI_DI%CC%87ZI%CC%87_ELES%CC%A7TI%CC%87RI%CC%87S%C4%B0.mp4) `72.3MB`
 
